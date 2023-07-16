@@ -4,4 +4,4 @@ meanwhile, The Political Machine 2023, Danny Fisher Kills the Government (even b
 
 sexiest by policy representatives, congressmembers and senators 
 
-
+Papertrails and papercreds mean nothing. 
