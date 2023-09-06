@@ -1,7 +1,4 @@
-how many votes is your vote worth x100 - 100x just for equitable awarenesses 
+How many votes is your vote worth
 
-meanwhile, The Political Machine 2023, Danny Fisher Kills the Government (even better than nationally touring exhibitions) 
+SexyCongress, SexySenate: Rate "hotness" by policy representatives, congressmembers and senators 
 
-sexiest by policy representatives, congressmembers and senators 
-
-Papertrails and papercreds mean nothing. 
